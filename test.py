@@ -48,3 +48,22 @@ At Sellers Union Agent, we've helped over 10,000 businesses worldwide successful
 
 💬 Submit the form now and start sourcing smarter with us!
 #YiwuAgent #TrustedSupplier #GlobalTrade #ImportFromChina #SouthAmericaBusiness #WholesaleSuccess
+
+--------------------------------------------------------------------------------------------------------------------------------------
+✨ Looking for a reliable sourcing agent in Guangzhou?
+Market Union's Guangzhou Team must be your best choice!
+
+With low commission, multi-category expertise, and a multilingual team, we've helped 10,000+ global buyers source the right products — faster, smarter, and safer.
+👗 Apparel & Clothing
+💍 Jewelry & Accessories
+👟 Footwear
+👜 Bags & Luggage
+📱 Electronics
+ 🪑 Furniture
+
+📍Based in Guangzhou, we know every corner of the top wholesale markets – and we're ready to take you there, online or in person!
+
+📲 Reach us anytime on WhatsApp: +86 133 8002 0602
+Let's make sourcing in China simple, safe, and successful! 💼
+
+#GuangzhouSourcing #ChinaWholesale #BuyersAgent #GuangzhouMarket #SourcingAgent #ImportFromChina #GlobalTrade
