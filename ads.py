@@ -14,8 +14,8 @@
 意大利 17个广告 25.04开始 MU get quote
 捷克 8个广告 25.04开始 MU get quote
 斐济 18个广告 25.03开始 MU 发消息
-
-
+斯洛伐克 7个广告 25.04开始 MU get quote
+斯洛文尼亚 7个广告 25.04开始 MU get quote
 
 
 
