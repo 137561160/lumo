@@ -7,6 +7,19 @@
 哥斯达黎加 13个广告 25.04开始 MU get quote
 土耳其 21个广告 25.03开始 MU 发消息
 墨西哥 40个广告 25.03开始 MU 发消息
+多米尼加共和国 14个广告 25.04开始 MU get quote
+奥地利 7个广告 25.04开始 MU get quote
+委内瑞拉 15个广告 25.04开始 MU get quote
+巴西 44个广告 25.03开始 MU 发消息
+意大利 17个广告 25.04开始 MU get quote
+捷克 8个广告 25.04开始 MU get quote
+斐济 18个广告 25.03开始 MU 发消息
+
+
+
+
+
+
 
 
 对手线
@@ -20,6 +33,7 @@ Ihomechinabuy
 UNION SOURCE CO.,LTD
 Andy.sourcing
 Moody-Sourcing
+Dua Trusted Sourcing Agent
 
 其它
 -------------------------------------------------
