@@ -40,20 +40,36 @@ Let Crazysmall be your trusted partner in Yiwu — we’ll take care of everythi
 #MarketUnion #YiwuMarket #CantonFair #GlobalSourcing #ChinaImport #Wholesale #B2B #BuyersAgent #SourcingAgent #BuyersMarket
 
 ------------------------------------------------------------------------------------------------------------------------------------
-At Sellers Union Agent, we've helped over 10,000 businesses worldwide successfully import from Yiwu. Whether you're a small retailer or a large wholesaler, we're here to:
+🚀 Your Guangzhou Sourcing Agent | 300+ Verified Buyers​​
+Crazysmall Team: Where ​​15% Cost Savings​​ Meet ​​99% QC Pass Rate​​ ✅
 
-✅ Find Trusted Yiwu Suppliers
-✅ Handle Quality Checks & Logistics
-✅ Ensure Smooth Transactions
+​​Why Us?​​
+🔸 ​​1-5% Service Fee​​ – Price Match from 1688/Taobao/PDD and less than them
 
-💬 Submit the form now and start sourcing smarter with us!
-#YiwuAgent #TrustedSupplier #GlobalTrade #ImportFromChina #SouthAmericaBusiness #WholesaleSuccess
+​​Top Categories:​​
+👗 Apparel
+💎 Jewelry 
+📱 Electronics 
+🛋️ Furniture (Custom OEM Accepted)
+​​Smart Services:​​
+✅ ​​Matching​​ products <2h Response
+✅ ​​Live Factory Tours​​ via WhatsApp Video Call
+
+​​Global Success:​​
+🇺🇸 "Saved $23K on first order!" – Texas Retailer
+🇪🇺 "Faster than local suppliers!" – Milan Boutique
+
+📲 ​​Chat Now:​​ https://wa.me/8613424784303
+24/7 Support | More Options Payment | Door-to-Door Shipping
+
+#GuangzhouSourcing #B2BSupplier #ChinaFactory
+#SafeSourcing #WholesalePro
 
 --------------------------------------------------------------------------------------------------------------------------------------
 ✨ Looking for a reliable sourcing agent in Guangzhou?
-Market Union's Guangzhou Team must be your best choice!
+Crazysmall's Guangzhou Team must be your best choice!
 
-With low commission, multi-category expertise, and a multilingual team, we've helped 10,000+ global buyers source the right products — faster, smarter, and safer.
+With low commission, multi-category expertise, and a multilingual team, we've helped 300+ global buyers source the right products — faster, smarter, and safer.
 👗 Apparel & Clothing
 💍 Jewelry & Accessories
 👟 Footwear
@@ -63,7 +79,7 @@ With low commission, multi-category expertise, and a multilingual team, we've he
 
 📍Based in Guangzhou, we know every corner of the top wholesale markets – and we're ready to take you there, online or in person!
 
-📲 Reach us anytime on WhatsApp: +86 133 8002 0602
+📲 Reach us anytime on WhatsApp: https://wa.me/8613424784303
 Let's make sourcing in China simple, safe, and successful! 💼
 
 #GuangzhouSourcing #ChinaWholesale #BuyersAgent #GuangzhouMarket #SourcingAgent #ImportFromChina #GlobalTrade
