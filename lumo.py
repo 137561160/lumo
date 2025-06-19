@@ -50,10 +50,25 @@ Our products are widely used in👇
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------
 Tthe factory specializes in providing high-purity weight-loss polypeptide products, including beauty, fitness, whitening, and anti-wrinkle peptides. Customized peptide solutions are available, with direct delivery from the factory on a daily basis. All deliveries are ensured to be safe and confidential.
+
+Looking for reliable TR peptides to power your research?
+
   
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+💪 Premium Peptides – Direct from the Source Factory
+Looking for reliable muscle-building, fat-loss, or performance-enhancing peptides?
+We’re a trusted peptide manufacturer, now expanding partnerships with global distributors and research labs.
 
+🔥 Why choose us?
+✅ Scientific-grade purity & tested quality
+✅ Flexible order quantities (MOQ friendly)
+✅ Custom formulations available
+✅ Specializing in bodybuilding & weight management peptides
+✅ Fast & secure worldwide shipping
 
+Join our growing network of partners.
+📩 Message us now for product lists & pricing!
 
 
 
