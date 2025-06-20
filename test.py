@@ -82,5 +82,14 @@ Let's make sourcing in China simple, safe, and successful! 💼
 -------------------------------------------------------------------------------------------------------------------------------------------
 Morefar Global is a trusted China Sourcing Agent that provides purchase consultation, coordination with suppliers, sourcing service, price negotiation, quality control, warehousing, and cost-effective shipping solutions worldwide.
 
+-------------------------------------------------------------------------------------------------------------------------------
+Struggling with Sourcing from China?
+
+✅ One-stop solution: sourcing, QC, packaging & fast delivery
+✅ Flexible MOQ & hassle-free communication
+✅ Trusted by businesses worldwide
+
+Contact today—Make your sourcing simple and reliable!
+
 
 
