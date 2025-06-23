@@ -108,7 +108,13 @@ Feel free to contact us for more information, product catalogs, or a free quote 
 Welcome to inquire!🥰🥰🥰
                        
 ---------------------------------------------------------------------------------------------------------------      
-
+Breakthrough in Peptide Research!
+Get high-purity peptides from leading labs, trusted by scientists worldwide. Unlock new possibilities in your research today! Learn more now →
+这个感觉不错。有点个人，又有保护医药的风险。
+​​Peptide Research Breakthroughs​​
+Source high-purity peptides from leading laboratories, trusted globally by scientists. Advance your research potential. Explore our offerings →
+                       
+---------------------------------------------------------------------------------------------------------------                           
 
 
                        
