@@ -10,7 +10,7 @@
 👇Customized formulas available  
 跟主页的契合度，图片防控结合
 custom products tailored to your needs, 
-✦ Custom Solutions – Tailored peptides for weight loss, fitness, beauty & more.
+✦ Custom Solutions – Tailored peptides for weight loss, fitness, beauty & more. 这句直接用，是不行的。试过几次，就过不了。
 ✅ Custom formulations available
 --------------------------------------------------------------------------------------------
 Competitive prices that won't break the bank.
@@ -40,6 +40,9 @@ Inquire Now, Time limited discount.
 we can offer excellent quality and favorable prices. Whether you are a skincare expert, a retailer or an individual seeking the best peptide formula, we can meet your needs!
 ----------------------------------------------------------------------------------------------------------------------------
 Hello everyone, I am a peptide manufacturer from China. We provide high-concentration weight loss peptides to satisfy your most perfect peptide life at the most favorable price.
+
+-------------------------------------------------------------------------------------------------------------------------------
+Factory Direct Peptides, Zero Middleman Markups! High - Quality, Pure & Potent. For Weight Loss, Beauty & Skin Rejuvenation
 
 ----------------------------------------------------------------------------------------------------------------------
 🏭 Professional Peptide Factory | Weight Loss & Beauty Solutions​​ | Looking for Partners,global distributors and research labs.
