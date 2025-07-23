@@ -13,6 +13,12 @@ custom products tailored to your needs,
 ✦ Custom Solutions – Tailored peptides for weight loss, fitness, beauty & more. 这句直接用，是不行的。试过几次，就过不了。
 ✅ Custom formulations available
 --------------------------------------------------------------------------------------------
+🔥 Factory to You: Premium Peptides, Zero Markups!​​
+√ Lab-verified purity (99.9%)
+DM for third-party test reports
+
+#FatBurningPeptides
+----------------------------------------------------------------------------------------------------
 Competitive prices that won't break the bank.
 Gym bodybuilding peptides, Beauty peptides, discount Available, welcome to contact me
 Our peptides are widely used in weight loss, bodybuilding, and skin care fields.
