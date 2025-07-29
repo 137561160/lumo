@@ -7,6 +7,9 @@
 🌍 Grow Your Business with Trusted Peptides
 
 🔥Factory Direct🔥
+ ---------------------------------------------------------------------------------------------------------------------------
+ Top Quality Peptide with Competitive Price for Lab Use
+GMP certification high purity 99%Ipamo Peptide 5mg powerful secretion booster                                     
 
 ---------------------------------------------------------------------------------------------------------------------
 Leading high-quality peptide manufacturer in China, with purity exceeding 99%. We offer bottles containing 5mg, 10mg, and 15mg for weight loss, bodybuilding, skincare, and more. 100% safe, direct shipping available, optional third-party testing, custom products tailored to your needs, and immediate dispatch.
