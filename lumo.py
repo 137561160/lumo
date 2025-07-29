@@ -9,6 +9,9 @@
 🔥Factory Direct🔥
 
 ---------------------------------------------------------------------------------------------------------------------
+Leading high-quality peptide manufacturer in China, with purity exceeding 99%. We offer bottles containing 5mg, 10mg, and 15mg for weight loss, bodybuilding, skincare, and more. 100% safe, direct shipping available, optional third-party testing, custom products tailored to your needs, and immediate dispatch.
+                                                    
+------------------------------------------------------------------------------------------------------------------------------                                      
 
 #Peptide #WeightLoss 💥 Why do you eat less, exercise harder, but your weight remains the same?
 ✅ The truth may be: the peptide you use is not pure enough!
