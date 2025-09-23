@@ -871,8 +871,8 @@ Powered by leading-edge peptide formulations.
 Goods are in stock
 
 变体一0630：
-⚡ Source Premium Peptides Direct from Manufacturer!​​ Looking for partnerships with global distributors and research labs.
-🏭 Peptide Factory | 99%+ Purity | Bulk Wholesale Rates!​​
+⚡ Source Premium Peptides Direct from Manufacturer!​​
+🏭 Peptide Factory | 99%+ Purity | Bulk Wholesale Rates!​​ No MOQ
 ✅ Source Directly: Custom Weight Loss Peptides & Beauty Peptides Products
 ✅ MOQ 1g: Lyophilized Powder in 5mg-60mg Vials, OEM Formulas Accepted
 🔥 ​​Fast-Track Delivery:​​ DHL/UPS Express Shipping ​​Within 48 Hours​​
@@ -937,7 +937,7 @@ Your Trusted High-Quality Peptide Manufacturer.
 ✅ ​​Verified Quality:​​ Independently Tested by JANOSHIK
 ✅ ​​Custom Solutions:​​ Tailored Synthesis Available
 
-​​Ready to source premium peptides? Contact us today!
+​​Ready to source 99% Purity peptides? Contact us today!
 这个可以优化一下。
 变体1-0630：
 Ready to crush weight - loss goals, build lean muscle, or unlock glowing skin?
