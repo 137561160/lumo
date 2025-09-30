@@ -13,6 +13,13 @@ custom products tailored to your needs,
 ✦ Custom Solutions – Tailored peptides for weight loss, fitness, beauty & more. 这句直接用，是不行的。试过几次，就过不了。
 ✅ Custom formulations available
 -----------------------------------------------------------------------------------------------------------++++++++++
+Unlock the potential of high-purity peptides for your products. Our offerings feature ​​exceptional purity (99%+)​​ and are available in convenient ​​5mg, 10mg, and 15mg​​ sizes to suit various development stages 
+.
+Experience the advantage of ​​factory-direct sourcing​​. We provide genuine ​​wholesale prices directly to you​​, ensuring cost-effectiveness without minimum order quantities 
+.
+Perfect for ​​skincare brands​​ aiming to integrate premium, effective ingredients into their lines. ​​Resellers and labs​​ can also rely on us for consistent, high-quality ​​bulk supply​​ to support their operations and growth 
+.
+-----------------------------------------------------------------------------------------------------------------------------
 ​​Unlock Your Body's Potential with Premium Peptide Solutions​​
 
 Achieve transformative results—whether it's weight management, muscle growth, or radiant skin. As a leading peptide producer, we provide scientifically formulated products designed for excellence.
