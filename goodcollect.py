@@ -13,6 +13,14 @@ custom products tailored to your needs,
 ✦ Custom Solutions – Tailored peptides for weight loss, fitness, beauty & more. 这句直接用，是不行的。试过几次，就过不了。
 ✅ Custom formulations available
 -----------------------------------------------------------------------------------------------------------++++++++++
+Peptides factory supply competive price
+bulk in stock peptides
+bodybuilding peptides, muscle growth peptides
+Discount Available
+Test Available
+Tracking number Available and keep update to you
+Good service and satisfied goods
+---------------------------------------------------------------------------------------------------------------------
 Your Trusted Peptide Partner: Direct Factory Supply & Great Wholesale Prices​​
 
 Experience ​​fast and transparent logistics​​: we arrange quick shipping and keep you informed with tracking updates.
