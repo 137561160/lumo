@@ -225,7 +225,14 @@ Ideal for: Distributors, Brands, Labs & Research Institutions
 
 📱 ​​WhatsApp now for discounted rates and partnership details!
 --------------------------------------------------------------------------------------------------------------------------------------------
-
+peptides
+🔬 Purity Above 99% 
+ Quality You Can Rely On!
+💪 Supports Your Goals – Weight Loss, Bodybuilding, Skincare, and More.
+💊 Available in Convenient Sizes: 5mg | 10mg | 15mg
+🚚 Fast, Direct Shipping – No Delays!
+✅ 100% Safe & Secure – Optional Third-Party Testing for Peace of Mind.
+🛠️ Custom Formulas – Tailored to Your Specific Needs
 
 
 
