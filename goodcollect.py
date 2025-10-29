@@ -18,6 +18,12 @@ Best wholesale prices, superior quality, and 100% door-to-door, worry-free globa
 ---------------------------------------------------------------------------------------------------------------------------
 I'm a raw material factory supplier, connecting with global wholesalers. We offer bulk peptides, weight loss peptides, and fitness peptides. We also offer Test C, Test E, and Test P raw materials in powders, oils, and tablets. We offer wholesale pricing, high-quality products, and 100% door-to-door delivery. We also ship worldwide.
 ---------------------------------------------------------------------------------------------------------------------------------
+❤️As a ten-year-old peptide factory, we offer a wide variety of peptides, including weight loss peptides, fitness peptides, and beauty peptides. We also support bulk peptide purchases and wholesale of raw materials.
+
+✅We guarantee quality and will reissue any defective products free of charge.
+
+✅We provide fast, safe and reliable shipping and door-to-door delivery.
+------------------------------------------------------------------------------------------------------------------------------
 ⚡ ​​China’s Top Peptide Factory | Research-Grade Solutions​​ – Wholesale Supply, Fast Delivery!
 🔥 ​​Core Products:​​
 • Weight Loss Peptides (e.g., RT, TR, SM, A 9604)
