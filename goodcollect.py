@@ -52,6 +52,17 @@ We work with labs, distributors, and wholesalers worldwide. Let's build a succes
 📞 Request your free catalog and quote now!
 Peptides #FastDelivery #Wholesale #HighPurity
  ----------------------------------------------------------------------------------------------------------------------------
+💪 Need Peptides? Source Direct from the Factory!​
+We supply high-quality peptides for muscle building, fat burning, and performance boosting. Now building partnerships with distributors and labs worldwide!
+✅ Here’s Why We’re Your Go-To Supplier:​
+• Lab-Tested Purity & Consistency
+• MOQ-Friendly Orders
+• Custom Formulas Available
+• Experts in Fitness & Weight Management
+• Fast & Secure Global Delivery
+🤝 Let’s grow together!​
+📩 DM us for product lists and wholesale prices!
+-----------------------------------------------------------------------------------------------------------------------------
  🌟 Your Trusted Peptides Manufacturer – Direct Factory Supply 🌟
 We deliver high-quality peptides directly from our facility at competitive wholesale prices. 
 ✅ Key Advantages:
