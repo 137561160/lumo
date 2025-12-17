@@ -741,7 +741,26 @@ High-quality, high-purity peptides help support weight loss and muscle building.
 +++++++++++++++++++++++++++
 We are a source manufacturer focusing on producing high-quality peptides. Our products have multiple effects such as weight loss, muscle gain, anti-wrinkle, skin care, etc.
 ------------------------------------------------------------------------------------------------------------
- 
+ 💎 Premium Peptides — Direct From Our GMP-Certified Facility
+We are expanding our network and seeking new partnerships with global distributors and research laboratories.
+Why Partner With Us?
+• Verified Quality:​ 99%+ purity backed by third-party Certificates of Analysis (COA).
+• Global Reach:​ Reliable door-to-door delivery worldwide.
+• Complete Flexibility:​ We accommodate both wholesale and small-batch orders to meet your specific needs.
+Contact us on WhatsApp to request samples and partnership pricing.
+
+--------------------------------------------------------------------------------------------------
+Premium Peptides — Sourced from Our GMP-Certified Facility
+ We are a trusted supplier to global distributors, aesthetic clinics, wellness centers, and research laboratories, providing consistent.
+Why We Are the Partner of Choice:
+• GMP-certified manufacturing with complete COA and MSDS documentation for every batch.
+• Specialized expertise in formulations for fat-loss, skin rejuvenation, anti-aging, and metabolic support.
+• Low Minimum Order Quantities (MOQs) with options for private labeling and custom synthesis.
+• Stable production capacity and all necessary export documentation prepared for seamless logistics.
+• Fast, discreet, and secure international shipping worldwide.
+Elevate your offerings with premium beauty and slimming peptides, supported by professional-grade manufacturing.
+Contact us to request the full product catalog and distributor pricing.
+
 
 ---------------------------------------------------------------------------------------------------------------------------- 
 Get Premium Peptides at Factory Price!
