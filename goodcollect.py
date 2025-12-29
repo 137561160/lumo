@@ -24,6 +24,19 @@ No extreme dieting, no soul-crushing workouts—this weight loss hero helps you 
 ✅ Powered by high-potency fat-burning ingredients, it boosts metabolism to torch more calories even when you’re resting
 ✅ Delivers long-lasting satiety to curb cravings, so you can stick to regular meals without starving
 ✅ Gently supports your body’s balance—no rebound weight gain, no fatigue, just slimmer figure with glowing skin
+
+------------------------------------------------------------------------------------------------------------------------------------
+🔥 LIMITED TIME: 10% OFF for New Customers! 🔥
+Peptides Worldwide Trust in Every Batch.
+✨ What We Offer:
+✅ Weight Loss | ✅ Bodybuilding & Recovery
+✅ Skincare & Anti-Aging 
+🚀 Why You'll Love Us:
+✓ Fast & Secure DHL Shipping Worldwide
+✓ ≥99% Purity
+✓ Custom Synthesis for Your Projects
+💡 Perfect for Distributors, Labs & Brands!
+📩 Message NOW for Wholesale Prices & Claim Your Discount!
 -----------------------------------------------------------------------------------------------------------------------------
 🔥 ​​10% OFF for New Customers!​​ 🔥
 
