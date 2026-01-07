@@ -6,7 +6,7 @@ Each batch passesquality inspection.Fast shipping with 4-7 day global delivery
 Contact us via WhatsApp
 #Peptide #Weight Loss #Fitness #Beauty #Sculpting#PeptideFactory
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-12-30: Adrienne Barnes
+12-30: Adrienne Barnes  1368256344501187
 🚀 Transform Your Fitness Journey with Direct Factory Peptides — Unbeatable Prices Inside!
 
 Calling all fitness enthusiasts and wellness advocates! 👋 We are your direct peptide factory supplier, committed to delivering the high quality, pure peptides at unbeatable factory wholesale prices. No middlemen, just maximum results for your investment!
