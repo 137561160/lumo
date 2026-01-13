@@ -10,7 +10,13 @@
 • Global Logistics:​ Fast shipping with reliable 4-7 day international delivery.
 📱 Contact us via WhatsApp for product lists and wholesale pricing.
 -------------------------------------------------------------------------------------------------------------------
-
+💎 Source ≥99% Pure Peptides Direct from the Factory!
+What We Offer:
+✅ Wide Selection:​ TR, RT, AOD, BPC, TB, Klow & more | Oral/Oils | Test/SUS/ANA/Tren
+✅ Powerful Benefits:​ Weight Loss | Anti-Aging & Whitening | Muscle & Recovery
+✅ Flexible Sizes:​ 5mg/10mg/15mg | Custom Small Batches Welcome
+✅ Quality & Speed:​ Batch-Tested | 4-7 Day Global Delivery
+📱 WhatsApp now for details & pricing!
 
 
 
