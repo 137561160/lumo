@@ -2825,8 +2825,19 @@ PeptideSupplier #WeightLoss #Fitness #Beauty #PeptideFactory
 📱 Contact us via WhatsApp for inquiries and pricing.
 PeptideSupplier #WeightLoss #Fitness #Beauty #PeptideFactory                                                                                                                                                                                                                                                                           
 -----------------------------------------------------------------------------------------------------
+Delivering research-use peptides with 99% purity 
+
+🧪 No TFA, fillers, or binding components.
+
+🚀 After placing the order Rapid  shipping available.
+
+👉Tap “Learn More” to discover more.                                                                                                                                                                                                                                                                           
+-----------------------------------------------------------------------------------------------------------
                                                                                                                                                                                                                                                                            
 
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
 
  
  
