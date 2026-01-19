@@ -190,7 +190,12 @@ Whether you are targeting NAD+ synergy or cellular regeneration, we provide the 
 
 Stop aging. Start optimizing.✨ 👇 +Whatsapp
 ----------------------------------------------------------------------------------------------------------------------------------------------------
-
+Precision for Canada's Elite Labs. From Coast to Coast.
+Trusted from Vancouver to Toronto, we deliver the purity your research demands.
+✅ ≥99% HPLC test​ (COA Provided)
+✅ Secure, Discreet Canadian Shipping
+✅ Lyophilized for Peak Stability
+✨ Elevate your Canadian research. Message us on WhatsApp. 👇
 
 
 
