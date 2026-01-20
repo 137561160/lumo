@@ -196,6 +196,30 @@ Trusted from Vancouver to Toronto, we deliver the purity your research demands.
 ✅ Secure, Discreet Canadian Shipping
 ✅ Lyophilized for Peak Stability
 ✨ Elevate your Canadian research. Message us on WhatsApp. 👇
+---------------------------------------------------------------------------------------------------------------
+Your Trusted Peptide Supplier
+🚀 Quick US Shipping • 6–12 Days
+🏭 Direct Factory Prices
+💎 99%+ Purity Guaranteed
+💊 OEM / Bulk Orders Welcome
+🤝 Partner with a dependable supplier you can count on.
+-----------------------------------------------------------------------------------------------------------------------------
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
