@@ -53,9 +53,10 @@ Serving:​ Distributors, Clinics, Research Labs
 • Specialized in Beauty & Slimming
 • Verified Purity | Global Delivery
 📩 Message for Product List & Pricing  
-  
+------------------------------------------------------------------------------------------------------------------------------
+We operate from our own modern production facility, allowing us to cut out the middlemen and deal directly with our end customers. Our core product lines include popular peptides such as collagen peptides, soy peptides, antimicrobial peptides, and skincare-active peptides. We offer discounted pricing for bulk orders, with exclusive rates available for large-volume purchases.         
 
-
+---------------------------------------------------------------------------------------------------------------------------
 
 
   
