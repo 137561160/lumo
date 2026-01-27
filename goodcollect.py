@@ -2892,7 +2892,22 @@ We ship globally with confidence, and if your order is detained,we provide ONE F
 Combine this peace of mind with our 99%+ purity standards and rapid 2-day dispatch.A secure supply chain starts here. Click "Message" to learn more!                                                                                                                                                                                                                                                                           
 这个是个的主页，不含肽的，发消息那个位置可以写肽的相关内容。图片上可以很突出。
 ---------------------------------------------------------------------------------------------------------------------------------------------
- 
+Peptide Manufacturer | Factory Direct Supply
+Work directly with a professional peptide factory.
+✔ GMP compliant production
+✔ Custom peptide synthesis
+✔ OEM & private label service
+✔ Flexible MOQ
+
+👉 Contact us for product catalog & quotation.
+
+#PeptideManufacturer #OEMFactory #BiotechSupply
+-----------------------------------------------------------------------------------------------------------------------------------------------
+                                                                                                                                                                                                                                                                           
+
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
                                                                                                                                                                                                                                                                            
                                                                                                                                                                                                                                                                            
  
