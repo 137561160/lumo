@@ -116,6 +116,7 @@ We shift the liability back to the factory. We own the logistics risk so your ca
 
 Stop buying excuses. Start buying certainty.
 
+https://www.facebook.com/ads/library/?active_status=active&ad_type=all&country=US&id=1333151228848756&is_targeted_country=false&media_type=all&search_type=page&sort_data[mode]=total_impressions&sort_data[direction]=desc&view_all_page_id=119841817698749
 
 
 
