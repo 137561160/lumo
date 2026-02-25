@@ -2935,8 +2935,16 @@ Fast shipping and high-quality peptides guaranteed. Perfect for professionals se
 
 📩 Contact us now for a product catalog and pricing info! #SkincareSolutions                                                                                                                                                                                                                                                                           
 -----------------------------------------------------------------------------------------------------------------------------------------                                                                                                                                                                                                                                                                           
-                                                                                                                                                                                                                                                                           
-                                                                                                                                                                                                                                                                           
+DISTRIBUTOR PROGRAM: Factory Pricing
+✓ Save 25%+ vs. middlemen 
+✓ Flexible MOQ from 1g 
+✓ White Label & OEM Packaging
+🚚 Customs-cleared worldwide delivery Boost your peptide margins → Request distributor T&C
+#peptide                                                                                                                                                                                                                                                                           
+---------------------------------------------------------------------------------------------------------------------------------------
+
+
+
                                                                                                                                                                                                                                                                            
                                                                                                                                                                                                                                                                            
                                                                                                                                                                                                                                                                            
