@@ -79,7 +79,11 @@ The definitive source for innovators in fitness, wellness, and skincare R&D. Con
 We are a trusted manufacturer and wholesale supplier of peptides, committed to speed and transparency in every shipment.
 Our operations are guided by the principle of "Quality First, Timely Response, Seamless Communication."
 This commitment has earned us numerous positive reviews from clients worldwide.                                                                                       
-
+--------------------------------------------------------------------------------------------------------------------------------------
+Hi, friends. I am a peptide supplier. The price of the peptides you purchase is several times higher than mine.We have professional JK test reports, global delivery, and fast delivery. Welcome to inquire about pricing and contact me.
+                                                                                                                                                   
+                                                                                                                                                   
+                                                                                                                                                   
 
 
 
