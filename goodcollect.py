@@ -2957,8 +2957,8 @@ Premium-Pepti-des for US Brands
 99% purity. White-label available.
 Partner with the top peptide supplier. Request discount.
 contact me： + 5572 4420 
-
-                                                                                                                                                                                                                                                                           
+------------------------------------------------------------------------------------------------------------------
+We offer high-quality, lab-tested formulations with flexible MOQs and stable supply. If you are expanding your weight management or health products category, we can get in touch.                                                                                                                                                                                                                                                                           
                                                                                                                                                                                                                                                                            
                                                                                                                                                                                                                                                                            
  
