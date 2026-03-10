@@ -81,8 +81,17 @@ Our operations are guided by the principle of "Quality First, Timely Response, S
 This commitment has earned us numerous positive reviews from clients worldwide.                                                                                       
 --------------------------------------------------------------------------------------------------------------------------------------
 Hi, friends. I am a peptide supplier. The price of the peptides you purchase is several times higher than mine.We have professional JK test reports, global delivery, and fast delivery. Welcome to inquire about pricing and contact me.
-                                                                                                                                                   
-                                                                                                                                                   
+-----------------------------------------------------------------------------------------------------------------------------------                                                                                                                                                   
+Looking for a reliable peptide partner? 
+🤝 With 14+ years of manufacturing excellence, we provide high-purity, research-grade peptides with NO fillers.
+
+Why top researchers trust us: 
+✅ 170+ Products in stock 
+✅ Independent 3rd-party testing available 
+✅ 100% Batch traceability
+Get the quality your research deserves. Direct from the manufacturer. 
+
+👉 [Message Us] for a quote or catalog today!                                                                                                                                                   
                                                                                                                                                    
 
 
