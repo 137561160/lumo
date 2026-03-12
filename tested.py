@@ -92,7 +92,9 @@ Why top researchers trust us:
 Get the quality your research deserves. Direct from the manufacturer. 
 
 👉 [Message Us] for a quote or catalog today!                                                                                                                                                   
-                                                                                                                                                   
+---------------------------------------------------------------------------------------------------------------------------------
+Hello. As a professional peptide supplier, I'd like to mention that you may be paying significantly more for your current peptides. We offer direct, competitive pricing along with professional third-party test reports (e.g., JK), reliable global delivery, and fast shipping.
+Please feel free to contact me for a quotation or to discuss your requirements. I welcome your inquiry.  
 
 
 
