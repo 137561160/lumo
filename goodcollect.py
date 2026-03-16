@@ -2972,9 +2972,21 @@ Ideal for skincare brands seeking premium ingredients. ✅
 Ideal for resellers and labs – bulk supply available.
 Please contact me if you need any.                                                                                                                                                                                                                                                                           
 ----------------------------------------------------------------------------------------------------------------------------------------
+ We are a professional supplier of high-quality peptides. We offer a wide variety of peptide products and guarantee the best prices, the safest shipping methods, timely delivery, and excellent after-sales support. For more information, please contact us. Welcome to inquire!
                                                                                                                                                                                                                                                                            
-                                                                                                                                                                                                                                                                           
-
+--------------------------------------------------------------------------------------------------------------------------------------                                                                                                                                                                                                                                                                           
+ Premium ≥99% Purity Peptides – Sourced Directly from Our Manufacturing Facility
+🔬 Product Portfolio:
+• Research Peptide Compounds:​ Including TR, RT, AOD, BPC, TB, Klow, and related bioactive analogues.
+• Available Formulations:​ Supplied as oral formulations and oil-based products.
+• Classic Bioactive Compounds:​ Such as Test, SUS, ANA, Tren, and others.
+✅ Specifications & Primary Applications:
+• Key Applications:​ Targeted Weight Management | Anti-Aging & Skin Brightening | Muscle Synthesis & Recovery Support
+• Standard Packaging:​ Lyophilized vials in 5mg, 10mg, and 15mg sizes. Small-batch custom synthesis is available.
+• Quality Assurance:​ Each production batch undergoes rigorous analytical testing and quality control inspection.
+• Global Logistics:​ Reliable international shipping with delivery typically within 4-7 business days.
+📱 Contact us via WhatsApp for the complete product catalog and competitive wholesale pricing.                                                                                                                                                                                                                                                                          
+----------------------------------------------------------------------------------------------------------------------------
                                                                                                                                                                                                                                                                            
 
                                                                                                                                                                                                                                                                            
