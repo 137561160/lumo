@@ -2987,7 +2987,22 @@ Please contact me if you need any.
 • Global Logistics:​ Reliable international shipping with delivery typically within 4-7 business days.
 📱 Contact us via WhatsApp for the complete product catalog and competitive wholesale pricing.                                                                                                                                                                                                                                                                          
 ----------------------------------------------------------------------------------------------------------------------------
-                                                                                                                                                                                                                                                                           
+If you have any need for weight loss peptides, please contact me. Our WhatsApp number is: 193 3130 9419
+ 
+---------------------------------------------------------------------------------------------------------------------------------
+We are the manufacturer. We offer fast shipping and high-purity peptides!Delivery within 5 days. 👇Tap now to get stronger, leaner, sharper, and feel younger again Contact Us for Special Pricing
+ 
+------------------------------------------------------------------------------------------------------------------------------
+We are the manufacturer. We offer fast shipping and high-purity peptides!Delivery within 5 days. 👇Tap now to get stronger, leaner, sharper, and feel younger again Contact Us for Special Pricing
+🔥 Shred fat
+💪 Boost muscle mass
+💤 Sleep better & recover faster
+-------------------------------------------------------------------------------------------------------------------------------
+ 
+
+
+
+
 
                                                                                                                                                                                                                                                                            
                                                                                                                                                                                                                                                                            
