@@ -3010,6 +3010,12 @@ Looking for premium peptides for your brand or research? We're the manufacturer 
 ✓ Dependable Supply​ – Stable batches, export-ready docs.
 ✓ Global Reach​ – Fast, secure worldwide shipping.
 Boost your line with premium peptides.
+------------------------------------------------------------------------------------------------------------------------------------------------
+Looking for high-quality peptides with real transparency? 👀
+✔️ Third-party tested (COA available) 📄
+✔️ High purity & strict lab standards 🧪
+✔️ Trusted by fitness & research communities 💪👇📱WhatsApp for Quote
+🚀 #Peptides #COACertified
 
 
 
@@ -3100,6 +3106,8 @@ catalog Peptides Source
 
 Peptides — stay supplied
 Source Research-Grade Peptides Directly from the Lab
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
 
 -------------------------------------------------------------------------------------------------------------------------------
 details:
