@@ -3030,6 +3030,73 @@ Just consistent peptide supply for growing businesses.
 ✔ 📦 Distributors
 ✔ 💼 Brands
 ✔ 🌍 Global sellers
+----------------------------------------------------------------------------------------------------------------------------------------
+A trusted high-purity research peptide supplier from China, serving laboratories and research professionals around the world. We are committed to providing reliable, laboratory tested products with consistent quality and fast delivery speed.
+
+-------------------------------------------------------------------------------------------------------------- 
+Looking for a dependable peptide supplier for your growing business?
+
+We provide high-quality small molecule peptide ingredients and customized solutions for nutrition brands, skincare manufacturers, biotechnology companies and health product distributors.
+
+✔ Stable Production Capacity
+✔ Global Export Experience
+✔ GMP Quality Management
+✔ Customized Formulation Support
+✔ Long-Term Supply Partnerships
+
+Build your peptide product line with a trusted manufacturing partner.
+
+#PeptideSupplier #GlobalSupply #PeptideIngredients #HealthProducts #OEMManufacturer #B2BTrade #NutraceuticalIndustry #Importers
+*----------------------------------------------------------------------------------------------------------------------------
+Australia's Leading Research Compound Supplier
+
+🧪 Premium-grade research compounds independently tested at 99%+ purity by Janoshik.
+
+🚚 Fast Australia-wide express shipping with Australia Post, discreet packaging, and full tracking.
+
+⭐ Trusted by 600+ verified customers with reliable support and consistent quality from order to delivery.
+
+Research Use Only (RUO). For in-vitro laboratory research only. Not for human consumption.
+-------------------------------------------------------------------------------------------------------------------------
+We're not just another peptide supplier.
+
+We're a team of research specialists, quality analysts, and PhD-level advisors obsessed with one thing: delivering peptides that work — every single time.
+
+Every batch. Every vial. Every shipment.
+
+Because when your research depends on it, "good enough" isn't good enough.
+
+Meet the team behind the science →
+------------------------------------------------------------------------------------------------------------------------
+The supplier you're loyal to today might not exist next year.
+That fragility is bad for your research lab. Performance Labz is built for longevity, so your work has a partner that's around for the long haul.
+
+✓ Third-party HPLC and Mass Spec on every lot
+✓ Public batch records anyone can pull
+✓ No in-house numbers passed off as verification
+------------------------------------------------------------------------------------------------------------------------------------
+🏭 Factory production
+📦 Flexible quantities
+📄 Quality documentation
+📩 Click to request product list.
++                                                                                                                                                                                                                                                                           
+Looking for a Reliable Peptide Supplier?
+-
+Message us on WhatsApp
+-------------------------------------------------------------------------------                                                                                                                                                                                                                                                                           
+Premium quality materials designed for laboratory research.Strict QC.Stable supply.Global shipping.Trusted by research professionals worldwide.Consistent.
+                                                                                                                                                                                                                                                                           
+++++
+Research-Grade Peptides | Lab Supply
+
+
+------------------------------------------------------------
+                                                                                                                                                                                                                                                                           -----------------------------------------
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
+ 
+
+ 
 
 
                                                                                                                                                                                                                                                                            
