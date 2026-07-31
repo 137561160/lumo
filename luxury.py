@@ -10,5 +10,6 @@ Hello, I am a luxury wholesale supplier from China, I have the best price and th
 Luxury goods, shoes, bags, clothing are delivered
 -------------------------------------------------------------------------------------------------
 With less than 10% of the budget, you can purchase goods of the same quality as luxury items. Contact me for more details.
-
+We sell all kinds of luxury goods. For example, shoes, clothes, belts, bags, sunglasses, jewelry, etc.
++
 
