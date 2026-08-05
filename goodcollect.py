@@ -3091,8 +3091,15 @@ Research-Grade Peptides | Lab Supply
 
 
 ------------------------------------------------------------
-                                                                                                                                                                                                                                                                           -----------------------------------------
+🎯 Looking for a reliable peptide supplier?
+🏭 Factory-Direct Pricing – Save money, skip the middlemen
+💎 15 Years of Industry Experience – Trusted by labs worldwide
+💊 Fast Dispatch – Orders shipped within 72 hours, with real-time tracking
+🤝 Your Long-Term Peptide Partner – Consistent supply you can rely on
+
+📲 Message us on WhatsApp to check stock and place your order.                                                                                                                                                                                                                                                                           -----------------------------------------
                                                                                                                                                                                                                                                                            
+-----------------------------------------------------------------------
                                                                                                                                                                                                                                                                            
  
 
