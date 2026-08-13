@@ -3207,7 +3207,7 @@ Factory-direct supply for laboratory & professional use
 
 --------------------------------------------------------------------------------------------------------------------------------------
 #Peptide #LyophilizedPowder #PeptideSupplier #OEM #Manufacturer #FactoryDirect #Philippines #ResearchPeptides #Biotech #Wholesale
-                                                                                                                                                                                                                                                                           
+#ResearchPeptide #LabPeptide #BiochemicalResearch #SyntheticPeptide #PeptideSynthesis                                                                                                                                                                                                                                                                           
 
                                                                                                                                                                                                                                                                            
 
