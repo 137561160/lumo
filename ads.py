@@ -385,4 +385,29 @@ RELIABLE RESULTS
 
 -----------------------------------------------------------------------------------------------------------------
   
+1:1正方形B2B外贸社媒广告海报，蓝白科技实验室商务风格，干净现代，蓝色分子线条、工厂线稿、实验室仪器装饰元素，8K商业广告质感。
+底层使用我上传的产品实拍图片作为整张海报背景，不要修改、不要重绘底层产品画面，不要改动产品，AI只在上层叠加全部文字、标签、勾选列表、功能卡片、右侧信息框、底部认证UI；添加一层淡淡的半透明蓝色渐变蒙版，保证上层文字清晰可读，底层产品完整显示。
+版面布局： 左上角大号粗体标题：PREMIUM PEPTIDES；PREMIUM深蓝色，PEPTIDES红色。 标题下方红蓝拼接标签：RESEARCH USE ONLY。 标签下方小字：CHINA FACTORY DIRECT SUPPLY。
+页面左上区域带对勾复选列表： ☑ 99%+ PURITY ☑ LAB TESTED ☑ HIGH QUALITY ☑ MADE IN CHINA ☑ MADE IN CHINA ☑ FACTORY DIRECT PRICE
+画面左侧靠下，竖向排列4个白色圆角功能卡片，搭配对应小图标： 卡片1：LAB TESTED 卡片2：QUALITY ASSURED 卡片3：FAST & DISCREET SHIPPING 卡片4：FAST & DISCREET SHIPPING
+画面右侧，蓝色半透明磨砂玻璃方框，标题WHY CHOOSE US，内部要点列表： • Factory Direct Prices • Strict Quality Control • COA Available • Stable Available • Stable Supply • Fast International Shipping • Stable Supply • Fast International Shipping
+海报最底部通栏蓝白分割底栏： 左下角盾牌图标+文字：TRUSTED QUALITY，RELIABLE RESULTS。 底部靠右横向摆放3个认证logo及文字：GMP CERTIFIED，ISO CERTIFIED，FDA REGISTERED FACILITY。
+强制硬性要求：
+画面必须出现 RESEARCH USE ONLY 合规文字。
+底层为我上传产品图片，仅做上层排版叠加。
+主配色：深蓝、红色点缀、白色，现代实验室外贸B2B广告，字体锐利清晰，无扭曲乱码。
+Facebook/Ins 1:1信息流广告，专业工厂直供视觉效果。
 
+-----------------------------------------------------------------------------------------------------------------------------
+1:1正方形B2B外贸社媒广告海报，蓝白科技实验室商务风格，干净现代，蓝色分子线条、工厂线稿、实验室仪器装饰元素，8K商业广告质感。
+底层使用我上传的产品实拍图片作为整张海报背景，不要修改、不要重绘底层产品画面，不要改动产品，AI只在上层叠加全部文字、标签、勾选列表、功能卡片、右侧信息框、底部认证UI；添加一层淡淡的半透明蓝色渐变蒙版，保证上层文字清晰可读，底层产品完整显示。
+版面布局： 左上角大号粗体标题：CN PEPTIDES；CN深蓝色，PEPTIDES红色。 标题下方红蓝拼接标签：RESEARCH USE ONLY。 标签下方小字：CHINA FACTORY DIRECT SUPPLY。
+页面左上区域带对勾复选列表： ☑ 99%+ PURITY ☑ LAB TESTED ☑ HIGH QUALITY ☑ MADE IN CHINA ☑ MADE IN CHINA ☑ FACTORY DIRECT PRICE
+画面左侧靠下，竖向排列4个白色圆角功能卡片，搭配对应小图标： 卡片1：LAB TESTED 卡片2：QUALITY ASSURED 卡片3：FAST & DISCREET SHIPPING 卡片4：FAST & DISCREET SHIPPING
+画面右侧，蓝色半透明磨砂玻璃方框，标题WHY CHOOSE US，内部要点列表： • Factory Direct Prices • Strict Quality Control • COA Available • Stable Available • Stable Supply • Fast International Shipping • Stable Supply • Fast International Shipping
+海报最底部通栏蓝白分割底栏： 左下角盾牌图标+文字：TRUSTED QUALITY，RELIABLE RESULTS。 底部靠右横向摆放3个认证logo及文字：GMP CERTIFIED，ISO CERTIFIED，FDA REGISTERED FACILITY。
+强制硬性要求：
+画面必须出现 RESEARCH USE ONLY 合规文字。
+底层为我上传产品图片，仅做上层排版叠加。
+主配色：深蓝、红色点缀、白色，现代实验室外贸B2B广告，字体锐利清晰，无扭曲乱码。
+Facebook/Ins 1:1信息流广告，专业工厂直供视觉效果。  
