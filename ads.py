@@ -411,3 +411,26 @@ Facebook/Ins 1:1信息流广告，专业工厂直供视觉效果。
 底层为我上传产品图片，仅做上层排版叠加。
 主配色：深蓝、红色点缀、白色，现代实验室外贸B2B广告，字体锐利清晰，无扭曲乱码。
 Facebook/Ins 1:1信息流广告，专业工厂直供视觉效果。  
+-----------------------------------------------------------------------------------------------------------------------------------
+1:1正方形B2B外贸多肽产品信息流广告海报，8K高清商业平面设计，现代商务工业风，
+【重要强制规则】：背景使用我上传的多肽小药瓶产品实拍图，AI不要修改、不要重绘背景产品图片，只在画面上层叠加文字与UI图形组件，不要改动底层产品。
+
+版面布局：
+左上角：大标题，第一行粗黑大字：RELIABLE，第二行加粗橙色超大字体：PEPTIDE SUPPLIER；标题下方黑色分割横线，横线内文字：FACTORY DIRECT PRICING，橙色小字：NO MIDDLEMEN。
+右上角：橙色标签角标，配中国小国旗图标，文字：SHIP FROM CHINA，下方小字 FAST DELIVERY。
+画面左侧竖排4组卖点模块：圆形橙色图标+标题+辅助小字，
+1.烧杯图标：标题 LAB VERIFIED，小字 QUALITY ASSURED
+2.货车图标：标题 SHIP FROM CHINA，小字 FAST DELIVERY
+3.工厂图标：标题 OEM & PRIVATE LABEL，小字 CUSTOM SOLUTIONS
+4.纸箱图标：标题 BULK SUPPLY，小字 COMPETITIVE PRICING
+
+画面最底部通栏分为左右两个按钮横幅：
+左侧橙色按钮：文档图标，文字 REQUEST CATALOG & WHOLESALE PRICING
+右侧黑底按钮：whatsapp电话图标，文字 WHATSAPP NOW，橙色小字 GET PRICE LIST
+
+配色：主色橙色+黑色，白色文字，UI图形干净锐利，字体粗壮醒目，商业广告排版，层次分明，高对比度，社媒广告质感，无多余装饰，照片背景保持原样，只叠加图文UI，添加小字“RESEARCH USE ONLY”放在画面右下角角落位置。
+
+  
+
+
+  
