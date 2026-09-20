@@ -3100,8 +3100,29 @@ Research-Grade Peptides | Lab Supply
 📲 Message us on WhatsApp to check stock and place your order.                                                                                                                                                                                                                                                                           -----------------------------------------
                                                                                                                                                                                                                                                                            
 -----------------------------------------------------------------------
+Premium Peptides for
+Weight-Loss & Beauty-Direct From the Source Factory
+Looking for high-purity peptides for fat-reduction,skin
+rejuvenation,anti-aging,and metabolic support?
+We are a trusted peptide
+manufacturer supplying global distributors,clinics,and
+research labs-now expanding our international partner network.
+Why partners choose us
+Scientific-grade purity with verified testing
+MOQ-friendly for both small and large distributors
+Custom formulations for beauty&slimming programs Specialized in weight- management,skin repair collagen-boosting, and anti- aging peptides
+Fast,discreet,and secure worldwide delivery
+Work directly with a reliable factory -no middlemen,no delays
+Send us a message to get the full product list & pricing                                                                                                                                                                                                                                                                           
+-----------------------------------------------------------------
                                                                                                                                                                                                                                                                            
- 
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
+                                                                                                                                                                                                                                                                           
 
  
 
